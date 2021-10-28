@@ -1,2 +1,2 @@
 # Deep
-Herhangi başka bir şey
+any many miny
